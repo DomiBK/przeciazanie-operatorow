@@ -1,0 +1,1 @@
+# Przeci-anie-operator-w
